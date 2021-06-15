@@ -1,0 +1,1 @@
+# gomintowiki.github.io
